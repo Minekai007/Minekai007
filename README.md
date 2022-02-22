@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Minekai007
+- 👀 I’m interested in interesting stuff
+- 🌱 I’m currently learning how to learn
+- 💞️ I’m looking to collaborate on stuff that could use collaboration
+- 📫 How to reach me? Open your window and shout my name loud enough
